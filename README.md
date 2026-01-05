@@ -15,3 +15,5 @@
 
 
 𝕸𝖊 𝖊𝖓𝖈𝖚𝖊𝖓𝖙𝖗𝖔 𝖊𝖓 𝖊𝖑 𝖘𝖆𝖋𝖊 𝖘𝖊𝖗𝖛𝖊𝖗 (𝖊𝖘𝖕), 𝖊𝖓 𝕰𝖑 𝖋𝖆𝖓𝖉𝖔𝖒 𝖉𝖊 "𝕾𝕿𝕳"
+![Sonic 3 3D Sticker by Sonic The Hedgehog (1)](![Sonic 3 Dancing Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/19f0a126-99c9-4d26-ba92-0e4b7e927790)
+
