@@ -1,4 +1,6 @@
-<!-- VIEWS_START -->Visitas: 0<!-- VIEWS_END -->
+<!-- VIEWS_START -->
+![Visitas](https://img.shields.io/static/v1?label=Visitas&message=0&color=blue&style=for-the-badge&logo=github)
+<!-- VIEWS_END -->
 
 𝑯𝑰𝑰𝑰!
     𝔘𝔫𝔡𝔢𝔯 𝔭𝔯𝔬𝔣𝔦𝔩𝔢
