@@ -38,7 +38,8 @@
 
                                    𝕲𝖆𝖗𝖈𝖎𝖆𝖘 𝖕𝖔𝖗 𝖑𝖊𝖊𝖗, 𝖖𝖚𝖊 𝖕𝖆𝖘𝖊𝖘 𝖚𝖓𝖆 𝖑𝖎𝖓𝖉𝖔 𝖉𝖎𝖆, 𝖓𝖔𝖈𝖍𝖊, 𝖔 𝖙𝖆𝖗𝖉𝖊.
 
-![giphy](https://github.com/user-attachments/assets/502fb392-c4d8-451f-ab4c-925f47b02574)
+![Sonic 3 Fight Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/172a16f8-029a-4879-8c01-2d8b8fb9ba1a)
+
 
 
 
