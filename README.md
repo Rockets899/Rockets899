@@ -1,5 +1,5 @@
 <!-- VIEWS_START -->
-![Visitas](https://img.shields.io/static/v1?label=Visitas&message=40&color=black&style=for-the-badge&logo=)
+![Visitas](https://img.shields.io/static/v1?label=Visitas&message=45&color=black&style=for-the-badge&logo=)
 <!-- VIEWS_END -->
 
 𝑯𝑰𝑰𝑰!
