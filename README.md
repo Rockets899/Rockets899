@@ -48,7 +48,7 @@
  
  𝖈𝖔𝖒𝖊 𝖇𝖎𝖊𝖓!
 
-[Escuchar (raw)](https://nu.vgmtreasurechest.com/soundtracks/sonic-the-hedgehog-3-angel-island-revisited-pc-android-gamerip-flac/vthdwxzc/1-05.%20Angel%20Island%20Zone%20-%20Act%201.mp3)
+[Escuchar (raw)](https://744569-jean-paul-makhlouf.mp3.pm/song/150210702-reach-for-the-stars-sonic-colors/)
 
 
                                       
