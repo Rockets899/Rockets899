@@ -40,7 +40,7 @@
 
 
 
-                                              𝕻𝖊𝖗𝖘𝖔𝖓𝖎𝖙𝖆𝖘 𝖖 𝖖𝖚𝖎𝖊𝖗𝖔 𝖒𝖚𝖈𝖍𝖔
+                                              𝕻𝖊𝖗𝖘𝖔𝖓𝖎𝖙𝖆𝖘 𝖖𝖚𝖊 𝖖𝖚𝖎𝖊𝖗𝖔 𝖒𝖚𝖈𝖍𝖔
 
 
 ![Sega Knuckles Sticker by Sonic the Hedgehog](https://github.com/user-attachments/assets/2dc6942a-6271-4b1e-a1c1-b67fb451aa97)
